@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tilak Raj T
-- 👀 I’m interested in making a better future
+- 👀 I’m interested in contributing to a smarter future
 - 📫 How to reach me ...
 Email : tjstark312@advancedideamechanics.org
 
